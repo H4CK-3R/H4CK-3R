@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://camo.githubusercontent.com/09f01c949543d406b82b667bcddbb23e109c8df00114746e1b107cca269501a4/68747470733a2f2f66696c652e67617264656e2f61734c737748694e723839746b5451692f75686d6d6d" width= "520">
+<img src="https://file.garden/asLswHiNr89tkTQi/Hmm" width= "350">
 </p>
 <br>
 <p align="center">
@@ -18,3 +18,6 @@ I struggle with showing enthusiasm or feeling it really, so sorry if I seem dry.
   Just got back into AvA after like two years
 </details>
 </div>
+<p align="center">
+follow my main
+</p>
