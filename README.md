@@ -6,4 +6,10 @@
 <b>"IT WAS 13 AND A HALF YEARS I SPENT ON THAT PLATFORM IN HELL,<br> BUT I'VE COME BACK HELLBENT."</b><br>
 <a href= "https://open.spotify.com/track/36dKqk62FGNRPq7iguVGjf?si=3c01f729c37c4fa9">REVIVED - DERIVAKAT</a><br><br>
 Victim/H4CK3R fictionkin  
+</p>  
+<br>
+<p align="center">
+<details>
+<summary>BYI</summary>
+</details>
 </p>
