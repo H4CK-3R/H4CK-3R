@@ -14,6 +14,8 @@ Victim/H4CK3R fictionkin
 <summary>BYI</summary>
 Most ships DNI unless Victsi <br>
 I struggle with showing enthusiasm or feeling it really, so sorry if I seem dry.<br>
+  I'm really not that easy to amuse/impress, trying to is pretty useless.<br>
+  If you actually manage to then congrats I guess<br>
   I block freely <br>
   Just got back into AvA after like two years
 </details>
